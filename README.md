@@ -36,9 +36,11 @@ Tình trạng đau xương khớp ở phụ nữ phổ biến hơn nam giới.
 Các loại thảo dược hỗ trợ cho đau xương khớp:
 
 1. Ngưu tất
+
 Trong Y Học Cổ Truyền, ngưu tất là dược liệu có tính ôn, vị chua, đắng và quy vào kinh can thận. Các nghiên cứu khoa học đã chứng minh công dụng của dược liệu này là hành ứ, phá huyết và sau khi chế biến có tác dụng bổ can thận, mạnh gân cốt nên được sử dụng rất phổ biến trong các bài thuốc Y Học Cổ Truyền điều trị các bệnh lý về xương khớp. Trong đó bài thuốc thường được áp dụng là dùng 3 – 9g ngưu tất đem sắc lấy nước uống theo đợt - giúp lợi gân cốt, bổ thận, giảm các triệu chứng viêm khớp, đau khớp, đau bụng kinh. Đặc biệt, cao khô Ngưu tất bào chế dạng viên uống được dùng trong điều trị huyết áp cao, tăng cholesterol máu, xơ vữa động mạch.
 
 2. Dây đau xương
+
 Dây đau xương có tên khoa học Tinospora sinensis Merr. – thuộc họ Tiết đề Menispermaceae, có tính mát, vị đắng và quy và kinh can. Đây là một trong những loại thảo dược tốt cho hệ xương khớp. Thảo dược này dạng dây leo, chiều dài từ 7 – 8cm có cành rũ xuống, thân và lá cây có lông, lá cây hình tim có phần cuống tròn và hõm lại, phía đỉnh hẹp thành mũi nhọn với chiều dài 10 – 20cm, chiều rộng 8 – 10cm tỏa hình chân vịt.
 
 3. Lá lốt
@@ -46,9 +48,11 @@ Dây đau xương có tên khoa học Tinospora sinensis Merr. – thuộc họ 
 Ngoài công dụng được dùng như một loại gia vị, lá lốt còn được biết đến là một loại thảo dược tốt cho xương khớp. Trong Y Học Cổ Truyền, thảo dược này có tính ấm, vị cay và công dụng tán hàn, ôn trung, hàn khí chỉ thống, giúp giảm đau xương khớp. Dùng lá lốt phơi trong bóng râm, đến khi héo đem bỏ vào nồi sắc và nấu cùng nước trong thời gian khoảng 30 phút, gạn bỏ phần cặn, lấy nước uống sau bữa ăn tối. Ngoài ra sử dụng lá lốt trong các bữa ăn hoặc dùng ngâm chân cũng rất tốt cho xương khớp.
 
 4. Cây thiên niên kiện
+
 Thiên niên kiện là một vị thuốc quý trong Y Học Cổ Truyền. Trong danh sách các loại thảo dược tốt cho hệ xương khớp thì thiên niên kiện là một trong những vị thuốc đứng đầu trong điều trị. Dược liệu này có vị đắng, cay, tính ấm và mùi thơm, chứa hàm lượng lớn các hoạt chất có công dụng giảm đau. Thiên niên kiện được sử dụng trong điều trị với tác dụng hỗ trợ điều trị phong thấp, bổ gân cốt, chỉ thống tiêu thũng, nhức mỏi các gân xương, đau nhức khớp hoặc bị tê bại co quắp, viêm dây chằng, thoái hóa khớp và đau thần kinh tọa.
 
 5. Gừng
+
 Gừng là vị thuốc có công dụng giảm đau và kháng viêm tự nhiên hiệu quả, thảo dược này chứa hàm lượng lớn chất chống oxy hóa, tác dụng hiệu quả giúp thải trừ độc tố khỏi cơ thể. Ngoài việc sử dụng đơn độc, có thể kết hợp gừng với hành tây và muối rang để đem lại hiệu quả hỗ trơ điều trị đau khớp tốt. Người bệnh nên sử dụng bài thuốc chườm gừng, muối và hành tây mỗi ngày, liên tục đến khi giảm được triệu chứng đau thì có thể giảm tần suất chườm muối.
 
 
